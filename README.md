@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @BonnieToupin
 - 👀 I’m interested in product management & ux design/research
-- 🌱 I’m currently learning product management
 - 💞️ I’m looking to collaborate on work projects
 - 📫 How to reach me btt1@queensu.ca
 
